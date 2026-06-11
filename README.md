@@ -1,1 +1,0 @@
-# dinie-izham-3
